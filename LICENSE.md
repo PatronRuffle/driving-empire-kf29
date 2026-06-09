@@ -1,4 +1,4 @@
-#  
+#  exclusive driving empire Scripts is the best driving empire Script, featuring auto-upgrade and aimbot. Safe and powerful for all your needs.
 
 
 
